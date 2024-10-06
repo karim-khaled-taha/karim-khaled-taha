@@ -9,7 +9,6 @@ I'm pursuing a degree in **Biomedical Engineering** with a focus on **Medical De
 
 ## 📫 Let's Connect!
 - **LinkedIn**: [karim-khaled-479603250](https://www.linkedin.com/in/karim-khaled-479603250)
-- **GitHub**: https://github.com/karim-khaled-taha.
 
 ---
 
